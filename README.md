@@ -1,3 +1,4 @@
-# Hello gamers
+#Hello coders
 
-Officialy this is the gamesthings account so there will be some and more fun games
+I am a coder as of i also own one domain (at this time) and i love to make websites through github for people to enjoy
+i also own a (not yet real) github business called masc.biz and it is under one of my organizations (VERIFIED)
